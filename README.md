@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding like web development
 - 🌱 I’m currently learning java script
 - 💞️ I’m looking to collaborate on with other web developers
-- 📫 you reach me by my linkdin profile HUssnain Ahmad 
+- 📫 you reach me by my linkdin profile Hussnain Ahmad 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: my favrt game is cricket i also like coding too much  my fvrt writer is Ishfaq Ahmad
 
